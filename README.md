@@ -1,1 +1,0 @@
-# Inteleccess-Software-Eng-Assignment
